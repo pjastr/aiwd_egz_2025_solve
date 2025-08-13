@@ -1,0 +1,1 @@
+# aiwd_egz_2025_solve
